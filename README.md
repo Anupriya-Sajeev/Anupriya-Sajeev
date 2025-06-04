@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @Anupriya-Sajeev, a digital creator, be it website templates, presentations, vehicle branding/stickering, content or big data
 - 👀 I’m interested in selling digital creations
-- 🌱 I’m currently learning microgreen cultivation and organic digital marketing
+- 🌱 Grounded in research, shaped by creative writing and brought to life through design, digital expression and organic digital marketing. Every project is a story with purpose and personality from concept to creation.
 - 💞️ I’m looking to collaborate with people or entities interested in buying user-friendly and market-focused digital creations
 - 📫 How to reach me at anupriyssajeev29@gmail.com
-- 😄 Pronouns: Ms
+- 😄 Pronouns: Mrs
 - ⚡ Fun fact: Visual experience in every creation 
 
 <!---
