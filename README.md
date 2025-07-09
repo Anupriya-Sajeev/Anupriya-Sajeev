@@ -1,9 +1,9 @@
-- 👋 Hi, I’m @Anupriya-Sajeev, a digital creator, be it website templates, presentations, vehicle branding/stickering, content or big data
-- 👀 I’m interested in selling digital creations
-- 🌱 Grounded in research, shaped by creative writing and brought to life through design, digital expression and organic digital marketing. Every project is a story with purpose and personality from concept to creation.
-- 💞️ I’m looking to collaborate with people or entities interested in buying user-friendly and market-focused digital creations
+- 👋 Hi, I’m @Anupriya-Sajeev—a digital creator who transforms ideas into immersive content experiences. From website templates and pitch-perfect presentations to vehicle branding, storytelling, and big data strategy, I craft digital ecosystems that inform, engage, and convert. With a blend of creative flair, UX-driven design, and SEO precision, I build solutions that perform across platforms and audiences.
+- 👀 I’m passionate about co-creating digital experiences that bring imagination to life—whether through design, content, or data-driven storytelling.
+- 🌱 Fueled by research, crafted with creativity, and delivered through bold design and authentic digital marketing—every project I create tells a story with personality, purpose, and performance. From concept to creation, it's not just content—it's an experience.
+- 💞️ I’m open to collaborating with visionaries and brands ready to invest in digital creations that are intuitive, impactful, and built for the market. Let’s turn smart ideas into user-friendly experiences that sell themselves.
 - 📫 How to reach me at anupriyssajeev29@gmail.com
-- 😄 Pronouns: Mrs
+- 😄 Pronouns: Ms
 - ⚡ Fun fact: Visual experience in every creation 
 
 <!---
